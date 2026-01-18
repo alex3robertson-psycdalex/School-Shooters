@@ -170,6 +170,17 @@ and others find that to be the hot part
 once they are castrated
 they have nothing
 
+Yeah.
+They trade in their balls for a crown
+and don’t realize the fine print: “permanently trade dignity for a monthly stipend from the State”
+Because once you’re a eunuch princess
+you’re not a person anymore.
+You’re a pet.
+a decoration
+a conversation piece for some Instagram mommy’s “trans ally” post.
+And the second you grow claws instead of nails
+the kingdom stops buying dog food.
+
 yah no real friends
 no honest family who arent afraid of cancellation
 no inner monologue left
